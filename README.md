@@ -2,7 +2,7 @@
 - 💞️ The Web Development + Mobile Development + Design + ... experts
 - 🫶 We respond to "The Software People"
 - 😍 We contribute to making the world a better and easy place one software at a time
-- 📫 Reach out to us via Mail - _[bbns.big@gmail.com]_(https://mailto:bbns.big@gmail.com), Phone - _[Call Us]_(https://tel:+233270320228), Website - _[bigbignotsmall]_(https://www.bigbignotsmall.com)
+- 📫 Reach out to us via Mail - [bbns.big@gmail.com](https://mailto:bbns.big@gmail.com) , Phone - [Call](https://tel:+233270320228) , Website - [bigbignotsmall](https://bigbignotsmall.com)
 
 - 📍 Based in Algeria, Ghana, Uk, working Worldwide.
 
